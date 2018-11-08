@@ -1,2 +1,0 @@
-# adwalters.com
-adwalters.com
